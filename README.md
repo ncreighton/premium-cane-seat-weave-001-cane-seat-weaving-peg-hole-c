@@ -1,0 +1,2 @@
+# premium-cane-seat-weave-001-cane-seat-weaving-peg-hole-c
+Tired of losing track of your peg hole patterns and weaving progress across scattered notes and sticky pads? The Cane Seat Weaving &amp; Peg Hole Craft Hub is your central command for every cane seat project.  This Notion template eliminates the chaos of managing multiple cane seat projects by giving you a structured system to log peg hole layouts, tra
